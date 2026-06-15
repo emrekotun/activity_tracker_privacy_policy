@@ -1,0 +1,1 @@
+# activity_tracker_privacy_policy
